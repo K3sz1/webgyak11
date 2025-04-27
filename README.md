@@ -1,3 +1,3 @@
 # webgyak11
 
-Neve: Toon és ダニ
+Neveink: Toon és ダニ
